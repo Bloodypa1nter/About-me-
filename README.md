@@ -1,4 +1,5 @@
 # About me! 
+![Xingqiu and Chongyun](https://github.com/Chongyun-Kisser/About-me-/assets/164698347/34f907ed-0eb6-4092-8789-129939a4fd82)
 
 # You are my beloved partner . , 
 — . greetings for the person who is reading this, i am Xingqiu. A part of the guhua clan and the second son of the feiyun commerce guild.
